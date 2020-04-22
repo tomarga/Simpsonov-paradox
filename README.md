@@ -1,0 +1,1 @@
+# Sympsonov-paradox
